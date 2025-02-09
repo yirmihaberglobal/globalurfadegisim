@@ -2,7 +2,7 @@
 
 ---
 
-✅ **Süper Lig: Galatasaray - Başakşehir FK maçı canlı izle**
+✅ **Süper Lig: Antalyaspor - Başakşehir FK maçı canlı izle**
 
 Süper Lig'de heyecan devam ediyor ve bu akşam Galatasaray ile Başakşehir FK, kritik bir karşılaşma için sahaya çıkıyor. Maç, 9 Şubat Pazar günü saat 19:00'da başlayacak ve futbolseverler bu heyecan dolu mücadeleyi Bein Sports kanalından canlı olarak izleyebilecekler.
 
